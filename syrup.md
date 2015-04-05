@@ -10,3 +10,5 @@ Forget Puxatawny Phil. The appearance of buckets on trees and steam billowing fr
 * South Face Farm
 
 March is the beginning of a new season, and a time to disobey your acupuncturist, nutritional counselor, and yoga instructor by ingesting sugar, carbs, and gluten. My personal motto: if it comes from a tree, it’s for me.
+
+![Western Massachusetts maple syrup](photos/sugar-house-map.png)
